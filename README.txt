@@ -89,3 +89,5 @@ Conseils d'utilisation :
 NoteMaster est bien plus qu'un simple calculateur - c'est votre partenaire de réussite scolaire, disponible à tout moment pour vous aider à maîtriser pleinement votre parcours éducatif.
 
 Disponible dès maintenant, simple d'utilisation et totalement gratuit, NoteMaster révolutionne la façon de gérer ses résultats scolaires. Téléchargez-le et faites l'expérience d'un suivi scolaire intelligent et personnalisé !
+
+Pour toute demande d'assistance : contact@skileralok422@gmail.com  
